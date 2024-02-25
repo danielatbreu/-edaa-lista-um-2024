@@ -1,1 +1,1 @@
-# -edaa-lista-um-2024
+# edaa-lista-um-2024
